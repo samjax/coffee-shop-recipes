@@ -35,5 +35,3 @@
 
 - Let cool completely before using. Store syrup in an airtight container for up to two weeks.
 
-### Step 7
-- Mini me, going his own way - step 1
